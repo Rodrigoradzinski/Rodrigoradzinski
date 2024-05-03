@@ -37,7 +37,7 @@
 
 ### La na Roça
 
-**Curitiba, Paraná** _2005-2010_
+**Itaiópolis, Santa   Catarina** _2005-2010_
 
 <ul>
 <li>Atuei na plantação de tabaco, ganhando experiência fundamental em gestão agrícola e operações rurais.</li>
