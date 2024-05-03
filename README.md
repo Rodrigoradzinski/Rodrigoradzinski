@@ -76,7 +76,7 @@ Aqui estão alguns de meus projetos.
 
 Para explorar mais sobre os meus trabalhos, visite meu [portfolio online](https://github.com/rodrigoradzinski).
 
-## 📌 Informações Adicionais e Pessoa;
+## 📌 Informações Adicionais e Pessoais
 
 <p> Sou casado com a mulher da minha Vida, tenho uma filha de 5 anos, Tive uma Otima experiencia de ter me Criado no campo, Sou apaixonado Pelo que faço. 
 </p>
